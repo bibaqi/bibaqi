@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **MERN, Go**
 
-- 💬 Ask me about **Anime and Vtubers**
+- 💬 Ask me about **Anime and Games**
 
 - ⚡ Fun fact! **I love Sleeping 💤**
 
